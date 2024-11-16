@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @edupsyched
-- 👀 I’m interested in dropping educationational resources to people who need them most!
+- 👀 I’m interested in dropping educational resources to people who need them most!
 - 🌱 I’m currently learning everything
   
 - 💞️ I’m looking to collaborate on building the infrastructure needed to get resources to sub maharani africa asap
